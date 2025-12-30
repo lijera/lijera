@@ -1,7 +1,7 @@
 ### Hi there I Am LINGESH D👋
 
 # 💫 About Me:
-🌱 I’m currently learning full-stack web development<br>👨‍💻 All of my projects are available at (https://github.com/lijera)<br>📫 How to reach me lingeshd2003@gmail.com<br>📄 Know about my experiences<br>https://drive.google.com/file/d/1agjYRlkygRIqTDDdSVRGCVk29vyomYMz/view
+🌱 I’m currently AI ENGINEER $ ETHICAL HACKER<br>👨‍💻 All of my projects are available at (https://github.com/lijera)<br>📫 How to reach me lingeshd2003@gmail.com<br>📄 Know about my experiences<br>https://drive.google.com/file/d/1agjYRlkygRIqTDDdSVRGCVk29vyomYMz/view
 
 
 ## 🌐 Socials:
